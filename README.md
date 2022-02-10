@@ -8,4 +8,4 @@ Eli:(Living in ireland)
 Janderson:(Living in ireland)
 Fredy :(Chilean)
 
-We group in Discord, the class in live in two languages. English and Castellano.
+We group in Discord, the class in live in two languages. English and spanish.
